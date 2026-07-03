@@ -1,4 +1,4 @@
-#  
+#  bridger western top Script is the best bridger western Script, featuring auto-collect and fly. Safe and powerful for all your needs.
 
 
 
